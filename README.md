@@ -20,4 +20,4 @@ O resultado foi como esperado.
 ## 💭 Reflexão (Opcional)
 Comente sobre o desafio de criar algo 'natty' com IA.
 
-[Avatar Virtual D-ID](https://studio.d-id.com/share?id=5985004907568c04baaf1e037b257565&utm_source=copy)
+[LINK PARA O VÍDEO AQUI](https://studio.d-id.com/share?id=5985004907568c04baaf1e037b257565&utm_source=copy)
